@@ -1,2 +1,2 @@
 # bnxgkl
-# ![dwd](https://youtu.be/CPpHzuUxUQs)
+# [dwd](https://youtu.be/CPpHzuUxUQs)
